@@ -30,4 +30,4 @@ I dont think this post was very good, or very long, or much of anyhting, but I j
 
 If anyone is reading this, LOL bet you wish you didnt.
 
-Happy new year! -2024
+Happy new year!
